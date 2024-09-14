@@ -1,1 +1,1 @@
-[![committers.top badge](https://user-badge.committers.top/malaysia/syarief02.svg)](https://user-badge.committers.top/malaysia/syarief02)
+[![committers.top badge](https://user-badge.committers.top/malaysia/leoloso.svg)](https://user-badge.committers.top/malaysia/leoloso)
